@@ -1,4 +1,4 @@
-## Hi there 👋
+## Aloha, this is the The Hawai'i Remote Viewing Syndicate Bitcoin Philanthropy Official Bitcoin Philanthropy GitHub.
 
 <!--
 **THRVS/THRVS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
